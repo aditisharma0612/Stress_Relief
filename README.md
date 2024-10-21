@@ -11,7 +11,8 @@ The benefits of music for relaxation
 Dietary tips for reducing stress
 Exercise routines to boost mood
 The power of reading as an escape
-Comedy and its role in stress relief
+Comedy and its role in stress relief.
+
 **Lets start:**
 Visit the Website
 Take the Stress Level Test: Start by assessing your stress level to receive personalized feedback.
